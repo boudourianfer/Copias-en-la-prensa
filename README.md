@@ -1,1 +1,2 @@
 # Copias-en-la-prensa
+Tome la caja de papel sensible, y poniéndola bajo la sombra que usted hace, ábrala, saque una hoja de lo que todavía se conoce con el nombre anticuado de papel «luz de gas», envuelva cuidadosamente el resto del paquete y ciérrelo de nuevo en la caja, donde estará al abrigo de cualquier acción imprevista de la luz. Ya habrá usted puesto el negativo en la prensa, de modo que la cara mate quede hacia arriba. 
